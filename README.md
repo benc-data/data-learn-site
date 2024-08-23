@@ -27,3 +27,5 @@ _Your intelligence won't get you through it -- your character will._
 There's no specific timeframe to complete the mentorship. In fact, we believe it never truly ends. However, we'll categorize everything into episodes, much like a television series, because why not? Take your time, go at your own pace, and discuss it all with your mentor.
 
 When the time is right, look back and find someone else who could use an opportunity.
+
+IMPORTANT: This program does not make any claims about career preparedness or education. Also, most of the photos we use are probably copyrighted. Suck it, Chavez. (All the text is our own. But a copyright statement here would just feel a little hypocritical, you know?)
